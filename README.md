@@ -1,2 +1,2 @@
 # HarendraGlass
-A Glass and furniture shop
+A Glass Plywood & furniture shop
